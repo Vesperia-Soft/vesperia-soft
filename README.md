@@ -1,1 +1,0 @@
-# vesperia-soft
